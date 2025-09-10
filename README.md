@@ -138,7 +138,7 @@ Contributions are welcome! Feel free to:
 
 ## 📞 Contact
 
-Created by [Your Name] - feel free to contact me for questions or suggestions!
+Created by James Philip - feel free to contact me for questions or suggestions!
 
 ---
 
